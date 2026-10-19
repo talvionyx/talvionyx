@@ -1,2 +1,2 @@
-- 🌱 I’m currently learning everything
-- 💬 Ask me about anything
+- 🌱 I’m currently learning something 🌱
+- 💬 Ask me about anything 💬
